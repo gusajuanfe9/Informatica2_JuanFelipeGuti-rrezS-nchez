@@ -1,1 +1,1 @@
-# Informatica2_JuanFelipeGuti-rrezS-nchez
+# Informatica2_JuanFelipeGutierrezSanchez
